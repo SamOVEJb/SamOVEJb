@@ -1,4 +1,4 @@
-👋 Hi, I’m @SamOVEJb!
+👋 Hi, I’m SAMAH JABRI!
 
 👀 I’m interested in mechanical engineering, numerical simulation, and data science.
 
